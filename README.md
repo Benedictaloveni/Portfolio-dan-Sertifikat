@@ -37,5 +37,5 @@ https://drive.google.com/drive/folders/1MjzSZiuhshhMX6lKf7iRIcq9z8XEGPJx
 ---
 
 ## 📬 Kontak
-**Email:** melkisedek@geophys.unpad.ac.id  
+**Email:** benedictalovenim@gmail.com
 **LinkedIn:** https://www.linkedin.com/in/benedictalovenim  
